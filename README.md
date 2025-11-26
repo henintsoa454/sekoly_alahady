@@ -1,0 +1,1 @@
+# sekoly_alahady
